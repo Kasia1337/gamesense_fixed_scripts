@@ -1,1 +1,1 @@
-# Free anti-aim luas for gamesense
+# Free luas for gamesense
